@@ -1,0 +1,2 @@
+# NOVA-REAPERS-PLATFORM-
+Gelişim
